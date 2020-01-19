@@ -1,1 +1,1 @@
-# cszhangzhen.github.io
+# ningma-ai.github.io
